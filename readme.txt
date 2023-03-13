@@ -5,6 +5,9 @@
 66666666666666666
 77777777777777777
 88888888888888888
-fenzhi1 ------- fenzhi1
+fenzhizhizhizhizhzihzi
+
+
+
 
 
